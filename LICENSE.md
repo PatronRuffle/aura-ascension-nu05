@@ -1,4 +1,4 @@
-#  
+#  vip aura ascension Script is the best aura ascension Script, featuring silent aim and auto-farm. Safe and powerful for all your needs.
 
 
 
